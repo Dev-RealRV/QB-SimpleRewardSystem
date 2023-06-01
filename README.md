@@ -12,5 +12,5 @@
 - (https://discord.gg/ecocommunity) 🌐
 
 
-# Made With Love 💙
-  R.V#0001
+# Made With Love R.V#0001 💙
+  
